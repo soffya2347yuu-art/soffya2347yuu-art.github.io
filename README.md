@@ -6,4 +6,5 @@
 
 ## Связь
 
-- [Email](mailto:soffya2347yuu@gmail.com)  
+- [soffya2347yuu@gmail.com](mailto:soffya2347yuu@gmail.com)
+
